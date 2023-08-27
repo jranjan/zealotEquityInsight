@@ -1,0 +1,2 @@
+# zealotEquityInsight
+All about equity
